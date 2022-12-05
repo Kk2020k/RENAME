@@ -73,10 +73,10 @@ Example:- /set_caption 📕 File Name: {filename}
 » 𝘾𝙝𝙖𝙣𝙣𝙚𝙡: <a href=https://t.me/+hG6myXySoURlODY1>𝘾𝙡𝙞𝙘𝙠</a>
 » 𝘾𝙤𝙣𝙩𝙖𝙘𝙩: <a href=https://t.me/+hG6myXySoURlODY1>𝘾𝙡𝙞𝙘𝙠</a>
 
-• ❣️ <a href=https://github.com/lntechnical2>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
-• ❣️ <a href=https://t.me/Mhd_rzn>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
-• ❣️ <a href=https://youtu.be/GfulqsSnTv4>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
-• ❣️ <a href=https://t.me/mr_MKN>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
-• ❣️ <a href=https://t.me/GitHub_noob>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
-• ❣️ <a href=https://t.me/about_jeol>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
+• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
+• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
+• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
+• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
+• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
+• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
 """
