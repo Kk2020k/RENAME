@@ -75,8 +75,4 @@ Example:- /set_caption 📕 File Name: {filename}
 
 • ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
 • ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
-• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
-• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
-• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙍𝘽 𝙀𝙖𝙜𝙡𝙚</a>
-• ❣️ <a href=https://t.me/+hG6myXySoURlODY1>𝙋𝙧𝙤𝙛𝙚𝙨𝙨𝙤𝙧</a>
 """
